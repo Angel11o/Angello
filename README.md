@@ -2,4 +2,4 @@
 
 
 I´m a student
-Looking for learning experiences
+looking for learning experiences
